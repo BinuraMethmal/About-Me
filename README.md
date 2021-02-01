@@ -5,3 +5,4 @@
 - 📌  Also, I am a content creator of [Twitch](https://www.twitch.tv/nova_xox).
 
 My Social Links: 
+🟡  [Facebook](https://www.facebook.com/binura.methmal/) 🟡  [Instagram](https://www.instagram.com/binura.methmal/) 🟡  [Linkedin](https://www.linkedin.com/in/binura-methmal/)
